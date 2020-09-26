@@ -8,4 +8,4 @@ Here are someting in my mind. I'm not sure if it is right to put these personal 
 
 这里整理了AFXR小光君的一些想法……
 
-如果你实在有兴趣的话，先看看note.md吧 __(:з」∠)__
+如果你实在有兴趣的话，先看看note.md吧 ___(:з」∠)___
